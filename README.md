@@ -1,8 +1,3 @@
-Wanna steal one of my ideas? Go ahead. That's what it's here for.
+Welcome. Glad you're here for whatever reason it is you came.
 
-If it works, great.. you just saved me the dev time.
-If it flops, even better. I gave you one of the duds.
-Build it better? I’ll use it. Build it worse? I’ll fix it. Or not. Depends how bored I am.
-
-Let’s be honest—if it’s public, it’s the stuff I don’t mind losing.
-The real ideas aren’t on display.
+Hope you find what you were looking for if not, get ahold of me via whichever platform you got here from and let's talk about it.
